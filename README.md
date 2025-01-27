@@ -1,1 +1,1 @@
-Se encuentran los anexos del TIC desarrallodo por Vinicio Muela
+Se encuentran los anexos del TIC desarrollado por Vinicio Muela
